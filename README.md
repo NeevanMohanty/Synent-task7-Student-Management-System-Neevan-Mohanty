@@ -1,1 +1,0 @@
-# Synent-task7-Student-Management-System-Neevan-Mohanty
